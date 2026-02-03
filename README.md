@@ -1,0 +1,2 @@
+# 79f14887-6496-42a5-80d7-0e1d35df1532-hero-2
+Hero section variant 2 for 79f14887-6496-42a5-80d7-0e1d35df1532
